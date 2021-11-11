@@ -572,7 +572,6 @@ Thôi cho anh xin, được nói câu tạ lỗi
 Đời riêng anh đây, đã một lần bước rồi
 Em trách chi em, duyên đời bao lầm lỡ
 Còn nặng tình xưa, vừa đau buồn duyên số
-Welcome to Yeucahat.com
 Mình tìm gặp nhau, đừng thức lại tình đau.
 Thôi cố quên chuyện buồn
 Vùi dư âm ngày xưa
