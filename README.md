@@ -1,5 +1,235 @@
 # Bolero
 
+## Lỡ Hẹn Với Dòng Lam
+Mây chiều bản làng soi bóng nước
+Một chiếc thuyền nan vội vã trở về
+Sông Lam một dải xanh như ngọc
+Vời vợi mắt ai buồn tái tê
+Xa xa mây phủ non Hồng Lĩnh
+Đá vàng hoa cài nở bến sông
+Câu hát giận thương vương sóng nước
+Đò đầy đò phải sang sông
+Đến duyên em đi lấy chồng
+Đôi mắt người thương nghiêng vành nón
+Giận hờn chi rứa bến sông buồn
+Anh nỏ ngỏ lời em chờ đợi sớm hôm
+Vì hoa đến thì thì hoa phải nở
+Em xuống bến đò em về bên nớ
+Nước mắt nhạt nhòa theo mái chèo buông
+Từ độ chia tay anh phiêu bạt muôn phương
+Nay trở về quê đò gác bến rồi
+Nghe câu ví dặm người ơi
+Sương chiều ướt lạnh dòng trôi
+Sông Lam xanh biếc đôi bờ
+Mà anh lỡ hẹn chuyến đò sang ngang
+Sông Lam bên lở bên bồi
+Mà anh lỡ hẹn với người anh thương
+Mây chiều bản làng soi bóng nước
+Một chiếc thuyền nan vội vã trở về
+Sông Lam một dải xanh như ngọc
+Vời vợi mắt ai buồn tái tê
+Xa xa mây phủ non Hồng Lĩnh
+Đá vàng hoa cài nở bến sông
+Câu hát giận thương vương sóng nước
+Đò đầy đò phải sang sông
+Đến duyên em đi lấy chồng
+Đôi mắt người thương nghiêng vành nón
+Giận hờn chi rứa bến sông buồn
+Anh nỏ ngỏ lời em chờ đợi sớm hôm
+Vì hoa đến thì thì hoa phải nở
+Em xuống bến đò em về bên nớ
+Nước mắt nhạt nhòa theo mái chèo buông
+Từ độ chia tay anh phiêu bạt muôn phương
+Nay trở về quê đò gác bến rồi
+Nghe câu ví dặm người ơi
+Sương chiều ướt lạnh dòng trôi
+Sông Lam xanh biếc đôi bờ
+Mà anh lỡ hẹn chuyến đò sang ngang
+Sông Lam bên lở bên bồi
+Mà anh lỡ hẹn với người anh thương
+Từ độ chia tay anh phiêu bạt muôn phương
+Nay trở về quê đò gác bến rồi
+Nghe câu ví dặm người ơi
+Sương chiều ướt lạnh dòng trôi
+Sông Lam xanh biếc đôi bờ
+Mà anh lỡ hẹn chuyến đò sang ngang
+Sông Lam bên lở bên bồi
+Mà anh lỡ hẹn với người anh thương
+
+## Gửi Người Em Hà Tĩnh
+Anh trở về thăm quê em Hà Tĩnh
+Qua cầu Bến Thủy ngắm nước dòng Lam
+Lòng nôn nao những tháng ngày gặp gỡ
+Nghe em hát giận thương rồi nhớ
+Hà Tĩnh ơi hương quê sao còn mãi
+Bát nước chè xanh
+Sao đậm tình xứ Nghệ
+Núi Hồng sông Lam bao đời vẫn thế
+Vẫn chờ đợi người con xa trở về
+Anh muốn về thăm Hà Tĩnh em ơi
+Tìm chút bình yên như vòng tay của mẹ
+Nơi có em cùng bao nhiêu kỉ niệm
+Xa phố thị xa dòng đời bon chen
+Anh muốn về về Hà Tĩnh em ơi
+Để cùng em hát chung một câu hò
+Và cùng em thăm dòng sông ngàn phố
+Gói lòng mình gửi theo con sóng
+Gửi trao em người Hà Tĩnh thân thương
+Anh trở về thăm quê em Hà Tĩnh
+Qua cầu Bến Thủy ngắm nước dòng Lam
+Lòng nôn nao những tháng ngày gặp gỡ
+Nghe em hát giận thương rồi nhớ
+Hà Tĩnh ơi hương quê sao còn mãi
+Bát nước chè xanh
+Sao đậm tình xứ Nghệ
+Núi Hồng sông Lam bao đời vẫn thế
+Vẫn chờ đợi người con xa trở về
+Anh muốn về thăm Hà Tĩnh em ơi
+Tìm chút bình yên như vòng tay của mẹ
+Nơi có em cùng bao nhiêu kỉ niệm
+Xa phố thị xa dòng đời bon chen
+Anh muốn về về Hà Tĩnh em ơi
+Để cùng em hát chung một câu hò
+Và cùng em thăm dòng sông ngàn phố
+Gói lòng mình gửi theo con sóng
+Gửi trao em người Hà Tĩnh thân thương
+Gói lòng mình gửi theo con sóng
+Gửi trao em người Hà Tĩnh thân thương
+
+## Em là con thuyền cô đơn
+Đời em giờ như thuyền không bến
+Thuyền cứ mãi lênh đênh giữa biển trời
+Muôn ngàn sóng gió chẳng bình yên
+Thân em bây giờ gửi phận cho ai
+Đợi chờ mãi gần hết nửa đời thanh xuân
+Thuyền không bến thuyền mãi lênh đênh
+Em cô đơn như con thuyền ấy
+Nhắn theo sóng thuyền ở ngoài khơi
+Bến nơi nào thuyền đỗ nghỉ ngơi
+Thanh xuân em còn nữa đâu anh
+Mất nửa đời em đợi chờ duyên
+Tương lai mịt mù chông gai
+Em hiện tại chẳng thuộc về ai
+Đời em giờ như thuyền không bến
+Thuyền cứ mãi lênh đênh giữa biển trời
+Muôn ngàn sóng gió chẳng bình yên
+Thân em bây giờ gửi phận cho ai
+Đợi chờ mãi gần hết nửa đời thanh xuân
+Thuyền không bến thuyền mãi lênh đênh
+Em cô đơn như con thuyền ấy
+Nhắn theo sóng thuyền ở ngoài khơi
+Bến nơi nào thuyền đỗ nghỉ ngơi
+Thanh xuân em còn nữa đâu anh
+Mất nửa đời em đợi chờ duyên
+Tương lai mịt mù chông gai
+Em hiện tại chẳng thuộc về ai
+Thuyền không bến thuyền mãi lênh đênh
+Em cô đơn như con thuyền ấy
+Nhắn theo sóng thuyền ở ngoài khơi
+Bến nơi nào thuyền đỗ nghỉ ngơi
+Thanh xuân em còn nữa đâu anh
+Mất nửa đời em đợi chờ duyên
+Tương lai mịt mù chông gai
+Em hiện tại chẳng thuộc về ai
+
+## Sương Trắng Miền Quê Ngoại
+Lội bùn dơ băng lau lách xuyên đêm
+Sương trắng rơi vai tôi ướt lạnh mềm
+Chim muông buồn rủ nhau bay về đâu
+Ngẩn ngơ lũ vượn gọi nhau
+Nào những khi ôm thép súng tê tay
+Đăm mắt theo bao hư ảo thở dài
+Nơi chốn xa buồn thương mẹ quảng gánh
+Em còn khêu sáng ánh đèn từ sương mai
+Mẹ biết bây giờ con ngồi hố nhỏ gió hẹn mưa thề
+Một khi con về quê ngoại xưa để mẹ nhắn lời thăm
+Đường làng cũ năm nào khi con còn bé nhỏ theo mẹ đến trường
+Giờ đây con đường xưa còn đó
+Tóc liễu vờn gió ru buồn
+Bận hành quân nên chắc khó thăm nhau
+Nhưng có nhau như hơi thở vào đời
+Tóc em còn có thơm hương cỏ may
+Để anh nói chuyện ngày mai
+Bạn bè anh theo lớp tuổi ra đi
+Dăm đứa thân nghe tin chẳng trở về
+Xin có em nguyện cầu cho đời anh
+Đá mềm chân cứng để mẹ còn tương lai
+Đường làng cũ năm nào khi con còn bé nhỏ theo mẹ đến trường
+Giờ đây con đường xưa còn đó
+Tóc liễu vờn gió ru buồn
+Bận hành quân nên chắc khó thăm nhau
+Nhưng có nhau như hơi thở vào đời
+Tóc em còn có thơm hương cỏ may
+Để anh nói chuyện ngày mai
+Bạn bè anh theo lớp tuổi ra đi
+Dăm đứa thân nghe tin chẳng trở về
+Xin có em nguyện cầu cho đời anh
+Đá mềm chân cứng để mẹ còn tương lai
+Xin có em nguyện cầu cho đời anh
+Đá mềm chân cứng để mẹ còn tương lai
+
+## Kiếp này em gả cho anh
+Cuộc đời em giờ trao cho anh
+Em mong anh
+Thương em thanh xuân còn lại
+Cả cuộc đời, em gả cho anh
+Về bên anh chỉ có anh thôi
+Xa lạ nhà em xa họ hàng người thân
+
+Phận làm dâu đời mấy ai thương
+Bên anh một đời
+Mong được người thương em
+Đời người con gái
+Hơn nhau ở tấm chồng
+Tiền bạc phú quý
+Nhiều khi sớm tối cô đơn
+
+Anh ơi anh có biết không
+Vất vả đau thương là phận em mang
+Bên họ hàng chẳng được mấy khi thương
+Chỉ mong người chồng an ủi vỗ về đêm
+
+Chỉ mong ai thấu hiểu lòng ai
+Nhưng đêm về phải tự an ủi mình
+Phận làm dâu là phận em mang
+Chữ hiếu vẹn trọn mong người hiểu thấu
+
+Cuộc đời em giờ trao cho anh
+Em mong anh
+Thương em thanh xuân còn lại
+Cả cuộc đời, em gả cho anh
+Về bên anh chỉ có anh thôi
+
+Xa lạ nhà em xa họ hàng người thân
+Phận làm dâu đời mấy ai thương
+Bên anh một đời
+Mong được người thương em
+Đời người con gái
+
+Hơn nhau ở tấm chồng
+Tiền bạc phú quý
+Nhiều khi sớm tối cô đơn
+Anh ơi anh có biết không
+Vất vả đau thương là phận em mang
+
+Bên họ hàng chẳng được mấy khi thương
+Chỉ mong người chồng an ủi vỗ về đêm
+Phận làm dâu đời mấy ai thương
+Bên anh một đời
+Mong được người thương em
+Đời người con gái
+
+Hơn nhau ở tấm chồng
+Tiền bạc phú quý
+Nhiều khi sớm tối cô đơn
+Anh ơi anh có biết không
+Vất vả đau thương là phận em mang
+
+Bên họ hàng chẳng được mấy khi thương
+Chỉ mong người chồng an ủi vỗ về đêm
+Bên họ hàng chẳng được mấy khi thương
+Chỉ mong người chồng an ủi vỗ về đêm
+
 ## Ai Cho Tôi Tình Yêu
 Ai cho tôi tình yêu của ngày thơ ngày mộng
 Tôi xin dâng vòng tay mở rộng
